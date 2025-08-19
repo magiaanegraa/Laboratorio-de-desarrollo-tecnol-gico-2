@@ -1,1 +1,1 @@
-# Laboratorio-de-desarrollo-tecnolgico-2
+# Laboratorio-de-desarrollo-tecnologico-2
